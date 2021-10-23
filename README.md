@@ -1,1 +1,1 @@
-# praktikum-numerik-_-fariid-abyasta-suheri-_-202010225333_TF3A6
+Praktikum 1 metnum
